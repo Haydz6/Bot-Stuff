@@ -1,3 +1,2 @@
 Watch me to find how to set me up! :D
-Not done
-Link will be uploaded tommorrow
+https://www.youtube.com/watch?v=CLvTo577w_Q&feature=youtu.be
